@@ -1,2 +1,7 @@
-# Manual-ToyStory2
-An AP manual for the old Toy Story 2 game on Ps1, N64, Dreamcast, and PC.
+# Toy Story 2: Buzz Lightyear to the Rescue (AP Manual)
+[under construction... yard]
+
+## What Are You Searching For?
+
+
+## Play Guide
